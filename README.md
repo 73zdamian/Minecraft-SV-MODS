@@ -1,1 +1,1 @@
-# Minecraft-SV-MODS
+# Minecraft-SV-24/7
